@@ -1,4 +1,4 @@
-# Datenschutzerklärung – Gerhardt und Peters Jagdschein-App
+# Datenschutzerklärung – Waidgang
 
 **Stand:** 11. August 2025  
 
