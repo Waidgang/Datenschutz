@@ -1,11 +1,11 @@
 # Datenschutzerklärung – Waidgang
 
-**Stand:** 11. August 2025  
+**Stand:** 1. November 2025  
 
 ## 1. Verantwortlicher
 Gerhardt und Peters Jagdschein-App GbR  
-Ludwig-Schröder-Straße 19  
-59174 Kamen  
+Postfach 15 02
+59005 Hamm
 Deutschland  
 E-Mail: **info@waidgang.de**
 
